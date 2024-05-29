@@ -1,6 +1,6 @@
 ## bem-vindo ♥️
 
- Meu nome e Thaiane
+ Meu nome é Thaiane
  - meu apelido e Thai
 - amo ouvir musica
 - meu filme favotiro e lilo stich
